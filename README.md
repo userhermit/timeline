@@ -34,7 +34,7 @@ President Trump pardons over 1,500 people for participating in the January 6 Cap
 https://www.reuters.com/world/us/trump-supporters-who-stormed-us-capitol-begin-leave-prison-following-sweeping-2025-01-21/
 
 **January 24, 2025:**
-Trump fires 17 Inspectors General. "More than a dozen federal agencies no longer have an independent watch dog ensuring that tax payer dollars are not being misused or mismanaged."
+Trump fires 17 Inspectors General. The Economic Policy Institute states, "More than a dozen federal agencies no longer have an independent watch dog ensuring that tax payer dollars are not being misused or mismanaged."
 https://www.epi.org/policywatch/trump-fires-17-inspectors-general/
 
 **January 25, 2025:**
