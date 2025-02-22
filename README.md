@@ -64,7 +64,7 @@ A federal judge announces the White House is refusing to comply with the court o
 https://www.nytimes.com/2025/02/10/us/trump-unfreezing-federal-grants-judge-ruling.html
 
 **February 11, 2025**
-President Trump and Elon Musk appear jointly in the Oval Office. Musk speaks to the press for thirty minutes about DOGE.
+President Trump and Elon Musk appear jointly in the Oval Office. Musk speaks to the press for around thirty minutes about DOGE.
 https://www.npr.org/2025/02/11/nx-s1-5293504/trump-musk-doge-oval-office
 
 **February 14, 2025:**
